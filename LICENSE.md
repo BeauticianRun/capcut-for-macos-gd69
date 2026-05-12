@@ -1,4 +1,4 @@
-# 
+# Enhance CapCut for macOS with best CapCut for macOS Template | echo-removal + reverb, the #1 template. Includes echo-removal and reverb for a smoother and more creative editing
 
 
 
